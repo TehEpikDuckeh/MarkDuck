@@ -1,0 +1,1 @@
+Welcome to my Repository... My projects will ALWAYS be in Beta or Devopment stage... Therefor, if you install anything from my repository, I am NOT responsable for you'r device to break. I'm not trying to be a punk in any way, but thats the way it is. May TehEpikDuck Fly!
